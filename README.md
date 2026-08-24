@@ -8,4 +8,4 @@ Saya Mahasiswa **UIN Sunan Kalijaga Yogyakarta** semester 5.<br>
 
 Saya juga freelance video editor dan desain grafis.<br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin]([https://www.linkedin.com/in/gilang-adhan/](https://www.linkedin.com/in/muhammad-fajri-mufare/))ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/muhammad-fajri-mufare/)ku ya.
